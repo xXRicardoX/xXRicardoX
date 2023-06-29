@@ -1,5 +1,5 @@
 # 💫 About Me:
-Olá meu nome é Ricardo.<br>🔭 Atualmente estudo o ultimo semestre do curso de Análise e Desenvolvimento de Sistema na faculdade de tecnologia FATEC Prof. Waldomiro May.<br>👯 Colaboro em trabalhos em grupos, sempre colaborando para o bem do objetivo.<br>🌱 Estou sempre em busca de novos conhecimentos para que possa agregar nos meus<br> estudos.<br>
+Olá meu nome é Ricardo.<br>🔭o. Recentemente concluí o curso de Análise e Desenvolvimento de Sistemas na faculdade de tecnologia FATEC Prof. Waldomiro May.<br>👯 Sou um colaborador ativo em trabalhos em grupo, sempre buscando contribuir para alcançar nossos objetivos.<br>🌱 Estou constantemente em busca de novos conhecimentos para aprimorar meus<br> estudos e habilidades.<br>
 
 
 ## 🌐 Socials:
