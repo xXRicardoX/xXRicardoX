@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Olá, sou Ricardo!<br>🔭 Estou atualmente envolvido em alguns projetos pessoais, incluindo a criação de sites e o desenvolvimento de projetos próprios para consolidar o conhecimento que adquiri durante a faculdade<br>🌱 No momento, estou me especializando na área de análise de dados, participando de diversos cursos para enriquecer meu conhecimento. Meu objetivo é trabalhar nesse campo no futuro, aplicando tudo o que aprendi.<br>🚀 Apaixonado por código<br> 🎮 Gamer nas horas vagas 🎧
+👋 Olá, sou Ricardo!<br>🔭 Estou atualmente envolvido em alguns projetos pessoais, incluindo a criação de sites e o desenvolvimento de projetos próprios para consolidar o conhecimento que adquiri durante a faculdade<br>🌱 Meu objetivo é trabalhar nesse campo no futuro, aplicando tudo o que aprendi.<br>🚀 Apaixonado por código<br> 🎮 Gamer nas horas vagas 🎧
 
 
 ## 🌐 Socials:
